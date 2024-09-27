@@ -1,2 +1,2 @@
-# Sabor-Colombo-PuertoRique-o-de-la-T-a-Abuela.github.io
+# SaborColomboPuertoRiquenodelaTiaAbuela.github.io
 Pag web Sabor
